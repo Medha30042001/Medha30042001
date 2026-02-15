@@ -30,7 +30,7 @@
 ---
 
 ### 📫 Let’s Connect  
-- 💼 LinkedIn: *add your link here*  
-- 📧 Email: *add your email here*  
+- 💼 LinkedIn: (https://www.linkedin.com/in/medha-adepu-751368214/)
+- 📧 Email: (medha.adepucse@gmail.com)
 
 ⭐ *Feel free to explore my repositories and follow my journey!*  
